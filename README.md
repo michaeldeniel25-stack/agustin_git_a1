@@ -1,4 +1,5 @@
-![alt text](WIN_20260709_21_13_23_Pro.jpg)
+<img width="1280" height="720" alt="WIN_20260709_21_13_23_Pro" src="https://github.com/user-attachments/assets/313f2874-faf3-4389-97b3-5156cd980ca5" />
+
 ## MICHAEL PHRINCE DENIEL C. AGUSTIN
 ------
 ##### ABOUT ME
